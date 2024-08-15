@@ -26,5 +26,9 @@ Caso tenha alguma dúvida ou sugestão, entre em contato através de fsdaniel22@
 ![image](https://github.com/user-attachments/assets/a8625183-5675-4af7-b278-a6f56d4f1146)
 
 <h2>Faça a maior pontuação.</h2>
-https://github.com/user-attachments/assets/a11c572a-3142-4420-b267-63b24327df5f
+
+
+
+https://github.com/user-attachments/assets/8c6112aa-cded-4a1f-98eb-c8f0ea0ea261
+
 
