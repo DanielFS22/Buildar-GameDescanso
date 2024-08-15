@@ -23,7 +23,8 @@ Caso tenha alguma dúvida ou sugestão, entre em contato através de fsdaniel22@
 
 <h3>Game Buildar: </h3>
 
-![image](https://github.com/user-attachments/assets/52989868-2b95-40ef-bc78-8c29acc10222)
+![image](https://github.com/user-attachments/assets/a8625183-5675-4af7-b278-a6f56d4f1146)
 
-https://github.com/user-attachments/assets/79d3b562-ea82-4e8a-8900-d9d8094657f2
+<h2>Faça a maior pontuação.</h2>
+https://github.com/user-attachments/assets/a11c572a-3142-4420-b267-63b24327df5f
 
